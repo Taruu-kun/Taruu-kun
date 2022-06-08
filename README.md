@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Taruu-kun
+- 👋 Hi, I’m Tarun Bhandari (@Taruu-kun)
